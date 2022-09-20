@@ -1,4 +1,4 @@
 # MercadoTech
-Ivan Hernandez
+Ivan Hernandez :ghost:
 Natalia Jimenez :grin:
 Paula Rojas :smile:
