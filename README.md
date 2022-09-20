@@ -1,4 +1,4 @@
 # MercadoTech
 Ivan Hernandez
 Natalia Jimenez
-Paula Rojas
+Paula Rojas :smile:
